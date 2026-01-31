@@ -4,4 +4,7 @@
 - **Họ tên:** Le Nhu Tuan
 - **MSSV:** 2324802010391
   
-## 🎬 Video hệ thống (GIF)
+## 🎬 Video lab thuc hanh (GIF)
+
+https://github.com/user-attachments/assets/4ba58745-9b47-437e-bdb2-c5d3e762b6e5
+
